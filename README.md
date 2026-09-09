@@ -1,4 +1,3 @@
-![](https://i.postimg.cc/kG03s7tk/prompt-banner.png)
 
 <br/>
 
